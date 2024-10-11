@@ -1,2 +1,4 @@
 Nicholas Arias
-7
+ariasn@oregonstate.edu
+blue
+Black country,new road
